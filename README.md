@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JohisArias
-- 👀 I’m interested in development and data analitycs.
+- 👀 I’m interested in development, IA and data analitycs.
 - 🌱 I’m currently learning all about programing skills.
 - 💞️ I’m looking to collaborate on remote enterprises.
 - 📫 How to reach me on ig: @johaa.ec
